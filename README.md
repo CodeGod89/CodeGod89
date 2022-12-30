@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @CodeGod89
+- 👀 I’m interested in growing as a coder
+- 🌱 I’m currently learning how to set up my profile 
+- 💞️ I’m looking to collaborate anyone who is hiring and experience coding
+- 📫 How to reach me CodeGod89@outlook.com
